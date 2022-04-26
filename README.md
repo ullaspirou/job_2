@@ -22,4 +22,4 @@ You have gained experience in the field of marketing, marketing research or onli
 You have a very good command of both written and spoken English
 
 Skills requirements on understanding business or domain are rather low, I guess. Also communication skills and skills for project management are mentioned nowhere. So, maybe they take them for granted...
-What do you think?
+What do you think? Again.
